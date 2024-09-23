@@ -3,7 +3,6 @@
 - 🙎🏻‍♀️ I'm Passionate about leveraging data science to solve real-world problems and drive meaningful insights.
 - 🏫 Graduated with a Master's in Data Science from New York University
 - 🎓 Undergraduate degree in Economics with a minor in applied statistics from Syracuse University
-- 🗽 Currently based in New York and New Jersey
 - 💬 Ask me about anything you want to know more about me
 - 📫 How to reach me: sl9344@nyu.edu / sling012024@gmail.com
 - 😄 Pronouns: She/Her
