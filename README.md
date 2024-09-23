@@ -5,7 +5,7 @@
 - 🎓 Undergraduate degree in Economics with a minor in applied statistics from Syracuse University
 - 🗽 Currently based in New York and New Jersey
 - 💬 Ask me about anything you want to know more about me
-- 📫 How to reach me: sl9344@nyu.edu / shiyu08266@gmail.com
+- 📫 How to reach me: sl9344@nyu.edu / sling012024@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love snowboarding and have been doing it for 5 years
 
