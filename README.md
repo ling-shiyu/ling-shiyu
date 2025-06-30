@@ -4,7 +4,8 @@
 - 🏫 Graduated with a Master's in Data Science from New York University
 - 🎓 Undergraduate degree in Economics with a minor in applied statistics from Syracuse University
 - 💬 Ask me about anything you want to know more about me
-- 📫 How to reach me: sl9344@nyu.edu / sling012024@gmail.com
+- 📫 How to reach me: sl9344@nyu.edu / lingshiyu25@outlook.com
+
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love snowboarding and have been doing it for 5 years
 
